@@ -1,1 +1,1 @@
-She likes grey hamster.
+She likes grey hamster and white cats
